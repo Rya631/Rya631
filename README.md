@@ -8,3 +8,4 @@
 Rya631/Rya631 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+I am reading alit most pain is why I can't learn.  Most peopke tried to kill me on their dumb way we'll they have no control .  God removed their will but these are the American evil deceased
